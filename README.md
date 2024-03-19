@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Patchi/Patch!
+- 👀 I’m interested in Little Nightmares, Little Misfortune, Undertale!
+- 🌱 I’m currently learning how to code!
+- 🌊 Sexuality: Non-binary!
+- 😄 Pronouns: Any!
+- ⚡ Fun fact: I love sheeps!!
